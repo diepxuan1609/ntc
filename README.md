@@ -1,0 +1,2 @@
+# ntc
+Www.giaitribacgiang.club
